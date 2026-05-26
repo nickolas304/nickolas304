@@ -4,7 +4,7 @@ Meu nome é Nickolas
 
 Tenho 15 anos, sou estudante da unidade de betim do Colégio Batista Mineiro.
 
-Moro em Betim Minas Gerais.
+Moro em Betim, Minas Gerais.
 
 Entrei para o cusrso técnico de informática para poder ter uma vida melhor no futuro, buscando aprender sobre tudo e adquirir muito aprendizado sobre as matérias que estudo.
 
